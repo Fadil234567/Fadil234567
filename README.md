@@ -1,0 +1,1 @@
+LU TAU KONTOL GAK 🗿🗿🗿
